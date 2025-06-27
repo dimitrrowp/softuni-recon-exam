@@ -18,5 +18,5 @@ Exam Objective
 ![Image](https://github.com/user-attachments/assets/157b492d-6f9a-44e6-98bc-fc0e17e1252c)
 ![Image](https://github.com/user-attachments/assets/4046526a-03fe-47af-b089-079d11f51614)
 ![Image](https://github.com/user-attachments/assets/c690c7aa-1138-4024-85aa-4d0307b3cff6)
-![Image](https://github.com/user-attachments/assets/3d6e23af-0367-48fe-bb08-abbbb017a9d5)
+
 
