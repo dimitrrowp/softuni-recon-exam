@@ -17,4 +17,8 @@ Exam Objective
 ![Image](https://github.com/user-attachments/assets/e8fd6b10-6451-4d4b-9feb-d2d7b0f04978)
 ![Image](https://github.com/user-attachments/assets/157b492d-6f9a-44e6-98bc-fc0e17e1252c)
 ![Image](https://github.com/user-attachments/assets/4046526a-03fe-47af-b089-079d11f51614)
-
+![Image](https://github.com/user-attachments/assets/33dc070d-3089-47df-b18a-a8b460ba2bd7)
+![Image](https://github.com/user-attachments/assets/1dc3d46f-fd28-461c-ae09-bf794e493d9e)
+![Image](https://github.com/user-attachments/assets/f270e9b8-5c37-4951-9209-a419cbd81100)
+![Image](https://github.com/user-attachments/assets/4c91e27d-bfcc-4cf6-8af0-8c02251d75b6)
+![Image](https://github.com/user-attachments/assets/16e46a27-4708-421f-972b-0892695fc3ea)
